@@ -24,7 +24,7 @@ Find me across various platforms:
 "https://youtube.com/@moaaz_alabed?si=L9NZGx7BRQwvowut" 
 ●	⚪️ LinkedIn: Professional connections and updates on my latest work.
 "https://www.linkedin.com/in/moaaz-alabed"
-WhatsApp Channel:
+WhatsApp Channel:For direct communication and exclusive content.
 "https://whatsapp.com/channel/0029VaMvo6v1XqubdeJbF31n"
 Let's Create Together!
 With my expertise and unique vision, let's bring your ideas to life. Reach out—I'd love to collaborate! ♥️
